@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @imenSIR
-- 👀 I’m interested in ...hacking
 - 🌱 I’m currently learning ...coding
 - 📫 How to reach me ...9072252657
 
